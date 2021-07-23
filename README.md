@@ -1,1 +1,0 @@
-# gama-landing-page-black-friday
